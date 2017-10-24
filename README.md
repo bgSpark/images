@@ -1,1 +1,1 @@
-## just iamges
+## just images
